@@ -1,4 +1,4 @@
-🌟 ## Hey there! I’m @101sx
+## 🌟Hey there! I’m @101sx
 -🚀 Passionate about tech and digital innovation.
 -📚 Currently diving into quantum computing and blockchain technology.
 -🤝 Always up for collaborations on tech start-ups and creative projects.
